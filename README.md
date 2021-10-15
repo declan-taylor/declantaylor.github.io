@@ -1,1 +1,0 @@
-# declantaylor.github.io
